@@ -1,1 +1,0 @@
-# minz95.github.io
